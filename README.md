@@ -1,0 +1,1 @@
+# _posts-2025-12-15-hypertrophy-research.md
